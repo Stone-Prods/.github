@@ -1,1 +1,1 @@
-![Monogramme](Images/stone_prod_github.png)
+STONE PRODUCTIONS - Creating Universe and Games
